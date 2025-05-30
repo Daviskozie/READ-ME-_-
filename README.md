@@ -1,6 +1,5 @@
 . ,˚ෆ 𝓗𝓮𝔂𝓪, 𝔀𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓶𝔂 𝓻𝓮𝓪𝓭𝓶𝓮  ( 𝓲𝓭𝓴 𝓱𝓸𝔀 𝓽𝓸 𝓾𝓹𝓵𝓸𝓪𝓭 𝓻𝓮𝓪𝓭𝓶𝓮.. 𝓼𝓸𝓼 ) . . ( •ࡇ• )
-
-![chance-chance-forsaken](https://github.com/user-attachments/assets/331b7cf6-9469-4fd7-adcb-24d975ad5105) ![regretevator-split](https://github.com/user-attachments/assets/aa016dad-1ca3-4846-8503-0c267c3d9eed) ![bive-regretevator-plush](https://github.com/user-attachments/assets/92c93bec-1c20-449f-a72a-3e9308c15448)
+ 
 
 ⋆˚࿔ . ,,𝓛𝓮𝓼𝓫𝓲𝓪𝓷 + 𝓑𝓲𝓼𝓮𝔁𝓾𝓪𝓵 = 𝓶𝓮 .
 
